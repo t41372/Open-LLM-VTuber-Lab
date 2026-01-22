@@ -30,7 +30,7 @@
 >
 > 사용자 설문조사: https://forms.gle/w6Y6PiHTZr1nzbtWA
 >
-> 调查问卷(中文): https://wj.qq.com/s2/16150415/f50a/
+> 사용자 설문조사 (중국어): https://wj.qq.com/s2/16150415/f50a/
 
 
 
